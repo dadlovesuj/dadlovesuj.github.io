@@ -16,7 +16,9 @@ Dad loves UJ so so so much!
 Dad loves UJ so so so so much
 ## :-)
 ## Your first name is UJVAL
-Bubbe gave you your first name
+Its a name just for you!
+## Bubbe gave you your first name UJVAL
+Bubbe is daddy's mom and bubbe love you sooooo much!
 ## UJVAL means light in Hindi
 You are the bright light in Dad's life!
 ## Bubbe loves you MORE than ANYTHING!
