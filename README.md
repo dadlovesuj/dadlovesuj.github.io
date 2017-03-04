@@ -52,11 +52,14 @@ You may be small, but grownups will listen since those are your RIGHTS!
 Grownups who are a part of UN and UNIS care alot about rules and your RIGHTS and they have to follow the rules
 ## The UN has rules for kids that grownups have to follow
 In fact it is your RIGHTS!!!
-## The rules are called "The Universal Declaration of the Rights of The Child"
+## The rules are called "The United Nations Convention on the Rights of the Child"
+or UNCRC for short
+## It means that all the grown-ups should follow the UNCRC rules and help kids like you
 Those are big words, but you can see it in pictures here: https://www.unicef.org/rightsite/files/rightsforeverychild.pdf
-#
-# Those Rules mean you have the RIGHT to your 1) OWN NAME and 2) OWN NATIONALITY 3) your JAIN religion and to speak to your 4) DAD!!!
-## Your name is UJVAL JAIN, you are a USA CITIZEN, you are JAIN religion who don't eat meat, and your DAD wants to talk to you at 917-719-0915 or dad@dadlovesuj.com
+# :-)
+# Those UNCRC Rules mean you have the RIGHT to your 1) OWN NAME and 2) OWN NATIONALITY 3) your JAIN religion and to speak to your 4) DAD!!!
+# :-)
+## Your name is UJVAL JAIN, you are a USA CITIZEN, you are of the JAIN religion who don't eat meat, and your DAD wants to talk to you at 917-719-0915 or dad@dadlovesuj.com
 And your Dad loves you more than anything!!!
 ## Grown-ups will help you since those are your RIGHTS!
 See, even grownups have to follow the rules since those are your RIGHTS
