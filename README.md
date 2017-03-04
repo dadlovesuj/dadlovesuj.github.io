@@ -22,7 +22,7 @@ You are the bright light in Dad's life!
 ## Bubbe loves you MORE than ANYTHING!
 Bubbe, Baba, Chacha, Badi Bua, Chote Bua, Kakha, Kakhi and Chutku also love you soooooo much!
 ## Your last name is JAIN
-I gave you your last name since I am your Dad and love you more than anything!
+I gave you your last name since I also am JAIN and I am your Dad and love you more than anything!
 ## JAIN means you are nice person who loves people, animals and all living things
 Jain people believe everyone is special and that animals are our friends!
 ## Even though people hurt us, we should not hurt others
