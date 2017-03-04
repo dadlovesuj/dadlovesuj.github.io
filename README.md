@@ -25,6 +25,10 @@ I gave you your last name since I am your Dad and love you more than anything!
 Jain people believe everyone is special and that animals are our friends!
 ## Even though people hurt us, we should not hurt others
 We don't hurt people, and we don't hurt or eat animals
+## JAIN is also your religion
+Jain's like peace and being friends and do not hurt people and animals
+## You have the right to be JAIN since that is your identity
+No grownup can take that away from you and no grown should give you meat to eat-- animals are friends to Jain people
 ## Your name is UJVAL JAIN
 Your nickname is UJ but you don't have any other names that anyone can call you
 ## :-)
