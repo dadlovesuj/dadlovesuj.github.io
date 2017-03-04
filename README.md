@@ -2,7 +2,7 @@
 # Call Dad at 917-719-0915 ANYTIME you want
 # Email Dad at dad@dadlovesuj.com ANYTIME you want
 # Ask a grown-up to help you talk to Dad and they WILL since it is your RIGHTS!
-# 
+# :-)
 
 ## Dad Loves UJ
 Dad loves UJ so much!
