@@ -57,8 +57,11 @@ See, even grownups have to follow the rules since those are your RIGHTS
 ## Namo aya ri ha nam
 ## Namo uva jaya nam
 ## Namo lo ay sav ay sa hu nam
-# That the Namo kar mantra which are magic words
-## It will protect you
+# Those are magic words
+## The magic words will always protect you
+## The magic words have Dad's love and magic in them
+## When you were born Dad told you those magic words
+## Those magic words were the first words you ever heard!
 ## If you miss your Dad just say I love you Dad
 ## Your Dad will hear it and say the magic words
 ## Then your Dad will appear inside your heart!
