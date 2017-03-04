@@ -3,7 +3,7 @@
 # Email Dad at dad@dadlovesuj.com ANYTIME you want
 # Ask a grown-up to help you talk to Dad and they WILL since it is your RIGHTS!
 # All you have to remember is DadLovesUJ.com to come back here
-# This site will be here forever to help you find your Dad
+# This site will be here forever to help you find your Dad NO MATTER WHAT
 # :-)
 
 ## Dad Loves UJ
