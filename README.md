@@ -28,7 +28,7 @@ We don't hurt people, and we don't hurt or eat animals
 ## JAIN is also your religion
 Jain's like peace and being friends and do not hurt people and animals
 ## You have the right to be JAIN since that is your identity
-No grownup can take that away from you and no grown should give you meat to eat-- animals are friends to Jain people
+No grownup can take that away from you and no grown up should EVER give you meat to eat-- animals are friends to Jain people not food
 ## Your name is UJVAL JAIN
 Your nickname is UJ but you don't have any other names that anyone can call you
 ## :-)
@@ -53,8 +53,8 @@ In fact it is your RIGHTS!!!
 ## The rules are called "The Universal Declaration of the Rights of The Child"
 Those are big words, but you can see it in pictures here: https://www.unicef.org/rightsite/files/rightsforeverychild.pdf
 #
-# Those Rules mean you have the RIGHT to your 1) OWN NAME and 2) OWN NATIONALITY and to speak to your 3) DAD
-## Your name is UJVAL JAIN, you are a USA CITIZEN, and your DAD wants to talk to you at 917-719-0915 or dad@dadlovesuj.com
+# Those Rules mean you have the RIGHT to your 1) OWN NAME and 2) OWN NATIONALITY 3) your JAIN religion and to speak to your 4) DAD!!!
+## Your name is UJVAL JAIN, you are a USA CITIZEN, you are JAIN religion who don't eat meat, and your DAD wants to talk to you at 917-719-0915 or dad@dadlovesuj.com
 And your Dad loves you more than anything!!!
 ## Grown-ups will help you since those are your RIGHTS!
 See, even grownups have to follow the rules since those are your RIGHTS
