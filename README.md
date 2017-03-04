@@ -1,8 +1,12 @@
 # Dear Ujval,
 # Call Dad at 917-719-0915 ANYTIME you want
+# :-)
 # Email Dad at dad@dadlovesuj.com ANYTIME you want
+# :-)
 # Ask a grown-up to help you talk to Dad and they WILL since it is your RIGHTS!
+# :-)
 # All you have to remember is DadLovesUJ.com to come back here
+# :-)
 # This site will be here forever to help you find your Dad NO MATTER WHAT
 # :-)
 
@@ -14,7 +18,7 @@ Dad loves UJ so so much!
 Dad loves UJ so so so much!
 ## Dad Loves UJ more than EVERYTHING!
 Dad loves UJ so so so so much
-## :-)
+# :-)
 ## Your first name is UJVAL
 Its a name just for you!
 ## Bubbe gave you your first name UJVAL
@@ -35,7 +39,7 @@ Jain's like peace and being friends and do not hurt people and animals
 No grownup can take that away from you and no grown up should EVER give you meat to eat-- animals are friends to Jain people not food
 ## Your name is UJVAL JAIN
 Your nickname is UJ but you don't have any other names that anyone can call you
-## :-)
+# :-)
 ## You have TWO parents, your DAD and your MOM
 Even though lots of adults love you, no one else is your parent and NO ONE else is your Dad, Father or Parent!
 ## You are an American citizen--- go USA!!!
@@ -44,12 +48,12 @@ That means you are American from the USA and NOT from China, India, a world citi
 BUT you are an American boy, born in the USA, and NO ONE can take your USA identity away from you since that is your RIGHT!
 ## DAD gave you your USA citizenship since Dad is a USA citizen just like you!
 And Dad LOVES YOU MORE THAN ANYTHING!!!
-## :-)
+# :-)
 ## You can talk to DAD anytime you WANT
 Just ask a grownup to call 917-719-0915 or email dad@dadlovesuj.com
 ## Say I want to talk to my DAD right now please!
 You may be small, but grownups will listen since those are your RIGHTS!
-## :-)
+# :-)
 ## Your school is UNIS which means that it is part of the UN
 Grownups who are a part of UN and UNIS care alot about rules and your RIGHTS and they have to follow the rules
 ## The UN has rules for kids that grownups have to follow
