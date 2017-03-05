@@ -69,23 +69,52 @@ Those are big words, but you can see it in pictures here: https://www.unicef.org
 And your Dad loves you more than anything!!!
 ## Grown-ups will help you since those are your RIGHTS!
 See, even grownups have to follow the rules since those are your RIGHTS
+# :-)
+## You have rights and you have a voice that grown-ups will listen to, but you also have a special JOB to do
+You have to go to school and learn but you also have a bigger job
+## You are very special and you have alot more than most of the other kids
+You have so many toys, you have so many people to love you, you have so much
+## You are a very good boy!
+Sometimes you might not follow the rules and get in trouble, or an adult might yell at you-- but you are still a good boy
+## But just being good for yourself is NOT enough
+That because you are special
+## You have to be good for other people too since that is your special job and you have magic SUPER-HERO POWERS!
+Your job is to use your magic super hero powers to help others
+## Your name UJVAL means light, and you have the superpower of LIGHT!
+Your superpower is also your job
+## By helping other people you will shine your LIGHT across the WORLD
+Helping others is a real magic superpower!
+# :-)
+## The ONLY way bad things can ever happen is when GOOD people do NOTHING
+Even when bad things happen YOU are still a good boy and Dad will always love you
+## You will NOT do NOTHING since your job is to use your super-powers and make the world better
+That can be if someone is being mean, if someone is not telling the truth, if someone is being hurtful, or many other things you will slowly learn as you grow up
+## When you see something BAD, it is time for you to SHINE your UJVAL super-light
+You have to help and do your job to make it right!
+## But why should YOU help?
+Maybe you should do nothing and wait for someone else to help?
+## You must always help because you are SPECIAL, and it is your JOB and super power!
+That is why you are UJVAL
+# :-)
+
 # Your Dad will love you always!
+#:-)
 # Now repeat after me:
 ## Om Jai Jai Namo stu Namo stu Namo stu
-## Namo ari han ta nam
-## Namo sid ah nam
-## Namo aya ri ha nam
-## Namo uva jaya nam
-## Namo lo ay sav ay sa hu nam
+## (1) Namo ari han ta nam
+## (2) Namo sid ah nam
+## (3) Namo aya ri ha nam
+## (4) Namo uva jaya nam
+## (5) Namo lo ay sav ay sa hu nam
 # Those are magic words
 ## The magic words will always protect you
-## The magic words have Dad's love and magic super powers in them
+The magic words have Dad's love and magic super powers in them
 ## When you were born, you gave Dad magic super powers since you made Dad into a Dad!
-## When you were born Dad told you those magic words in your ear when Dad first held you!
+When you were born Dad told you those magic words in your ear when Dad first held you!
 ## Those magic words were the first words you ever heard!
-## If you miss your Dad just say "I love you Daddy"
-## Your Dad will hear it and say the magic words
-## Then your Dad will appear inside your heart!
+If you miss your Dad just say "I love you Daddy"
+## Your Dad is always listening to you and watching over you and will hear you-- even from far away
+Then your Dad will appear inside your heart!
 ## Those are really magic words!
 # 
 # 
