@@ -82,10 +82,10 @@ That because you are special
 Your job is to use your magic super hero powers to help others
 ## Your name UJVAL means light, and you have the superpower of LIGHT!
 Your superpower is also your job
-## By helping other people you will shine your LIGHT across the WORLD
+# By helping other people you will shine your LIGHT across the WORLD
 Helping others is a real magic superpower!
 # :-)
-## The ONLY way bad things can ever happen is when GOOD people do NOTHING
+# The ONLY way bad things can ever happen is when GOOD people do NOTHING
 Even when bad things happen YOU are still a good boy and Dad will always love you
 ## You will NOT do NOTHING since your job is to use your super-powers and make the world better
 That can be if someone is being mean, if someone is not telling the truth, if someone is being hurtful, or many other things you will slowly learn as you grow up
@@ -93,12 +93,12 @@ That can be if someone is being mean, if someone is not telling the truth, if so
 You have to help and do your job to make it right!
 ## But why should YOU help?
 Maybe you should do nothing and wait for someone else to help?
-## You must always help because you are SPECIAL, and it is your JOB and super power!
+# You must always help because you are SPECIAL, and it is your JOB and super power!
 That is why you are UJVAL
 # :-)
 
 # Your Dad will love you always!
-#:-)
+# :-)
 # Now repeat after me:
 ## Om Jai Jai Namo stu Namo stu Namo stu
 ## (1) Namo ari han ta nam
